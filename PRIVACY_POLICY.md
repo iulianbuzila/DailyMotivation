@@ -1,4 +1,4 @@
-Daily Motivation: Privacy policy
+## Daily Motivation: Privacy policy
 
 Welcome to the Daily Motivation app for Android!
 
