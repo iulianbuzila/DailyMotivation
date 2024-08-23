@@ -10,4 +10,4 @@ I hereby state, to the best of my knowledge and belief, that I have not programm
 
 If you find any security vulnerability that has been inadvertently caused by me, or have any question regarding how the app protectes your privacy, please send me an email, and I will surely try to fix it/help you.
 
-iulian_20082001@yahoo.com
+dailymotivationtopg257@gmail.com
